@@ -5,4 +5,4 @@
 - 📫 我邮箱是admin@ysbrid.top
 > 如果想找我的就通过邮件把
 
-### 也可以常常来我的博客逛逛哦：[梦落の小屋](https://www.ysbrid.top)
+### 也可以常常来我的博客逛逛哦：[梦落の小屋](https://blog.dreamfall.cn)
